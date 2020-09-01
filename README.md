@@ -1,3 +1,0 @@
-# Baigiamasis
-
-Atsisiųskite .rar
